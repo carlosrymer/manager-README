@@ -4,7 +4,15 @@ As a manager, it's important for my team as well as my peers to know what I valu
 
 ## My management philosophy
 
+*There is no end to how good we can be as long as we always strive to improve.*
+
 ## My values
+
+**Curiosity:**
+
+**Continuous Improvement:**
+
+**Transparency:**
 
 ## My personality quirks
 
