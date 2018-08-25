@@ -4,7 +4,7 @@ As a manager, it's important for my team as well as my peers to know what I valu
 
 ## My management philosophy
 
-*There is no end to how good we can be as long as we always strive to improve.*
+> There is no end to how good we can be as long as we always strive to improve.
 
 I believe we're all similarly capable. Progress can sometimes feel slow and hard, but if we believe in the idea of progress and commit to being open to learning and improving, we can all get better and better. As a team, a safe space to acknowledge mistakes, talk openly about where we're falling short, and brainstorming ideas, all and any ideas, about how we can improve is critical to me. I want everybody to feel safe to be curious, creative, and expressive, and personal judgements to have no place in my team.
 
